@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Parth-28-Patel
+# 👋 Hi, I’m @Parth Patel
 
 ---
 
